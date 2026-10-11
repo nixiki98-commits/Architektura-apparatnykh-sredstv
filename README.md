@@ -1,1 +1,0 @@
-# Architektura_apparatnykh_sredstv-
